@@ -406,6 +406,7 @@ Haven Thornwick Bay Holiday Park, Filey
 - Sainte-Chapelle, Paris
 - La Baume, French Riviera (Eurocamp)
   - https://www.eurocamp.co.uk/campsites/france/riviera/la-baume-campsite
+  - Steph said the resort wasn't the best
 - Playa Montroig Camping Resort, Costa Dorada (Eurocamp)
   - https://www.eurocamp.co.uk/campsites/spain/costa-dorada/playa-montroig-camping-resort
   - Bit more expensive
